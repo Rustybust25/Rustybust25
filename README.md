@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rustybust25
+- 👀 I’m interested in game creation
+- 🌱 I’m currently learning hoew tocode
+- 💞️ I’m looking to collaborate on game dessiners
+- 📫 How to reach me jwoodsjacoby2@gmail.com
+- 😄 Pronouns: he/him
